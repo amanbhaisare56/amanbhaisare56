@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **amanbhaisare63@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1gOcAM237zVJDLbQ-ycS13OBKgQW3129q/view?usp=sharing](https://drive.google.com/file/d/1gOcAM237zVJDLbQ-ycS13OBKgQW3129q/view?usp=sharing)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1uBxF0tik8usmlW3_4KobEXJd3LgBfZpl/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
